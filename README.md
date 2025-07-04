@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **www.linkedin.com/in/malshini-perera-424281276 | malshiniperera224@gmail.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/malshini-perera-424281276](www.linkedin.com/in/malshini-perera-424281276)
+- 📄 Know about my experiences [www.linkedin.com/in/malshiniperera04](www.linkedin.com/in/malshiniperera04)
 
 - ⚡ Fun fact **I think I love baking**
 
